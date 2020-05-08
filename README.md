@@ -1,2 +1,2 @@
 # sexxlovegirl
-link adult  http://💎😉🤠😍👉👩.🍕💩.ws
+link adult 18++ only FREE  http://💎😉🤠😍👉👩.🍕💩.ws
